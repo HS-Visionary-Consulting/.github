@@ -1,7 +1,7 @@
 #  Nadaaniyan Movie (2025) – Netflix Release, Cast, Review, Budget, Box Office & How to Watch online
 
-Read more
-Read more 
+Read more:https://indian-movies-network.blogspot.com/2025/03/nadaaniyan-movie-2025-netflix-release.html
+Read more :
 Read more 
 Read more 
 Read more 
