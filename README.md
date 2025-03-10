@@ -1,10 +1,9 @@
 #  Nadaaniyan Movie (2025) – Netflix Release, Cast, Review, Budget, Box Office & How to Watch online
 
 Read more:https://indian-movies-network.blogspot.com/2025/03/nadaaniyan-movie-2025-netflix-release.html
-Read more :
-Read more 
-Read more 
-Read more 
+Read more:https://indian-movies-network.blogspot.com/2025/03/nadaaniyan-movie-2025-netflix-release.html
+Read more:https://indian-movies-network.blogspot.com/2025/03/nadaaniyan-movie-2025-netflix-release.html
+Read more:https://indian-movies-network.blogspot.com/2025/03/nadaaniyan-movie-2025-netflix-release.html
 
 
 Nadaaniyan (2025) is a Bollywood romantic comedy produced by Karan Johar and directed by Shauna Gautam. Released on Netflix India, it marks the Bollywood debut of Ibrahim Ali Khan (son of Saif Ali Khan) and Khushi Kapoor (daughter of Sridevi).
